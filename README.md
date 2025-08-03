@@ -36,7 +36,7 @@ Arshpreet Singh it section automation engineer
 # DAY 2 ( 1 August )
 Expert lecture by Dr.arashdeep Singh on "FOOD".
 This lectures helps students to understands the importance of wellness for students and to maintain perfect diet.
-# DAY 3 
+# DAY 3 (2 August)
 # AUDITORIUM 
 # 9:00-11:00 
 Motivational lecture by Dr.jaswinder Singh (Incharge IAPT),This lecture is about any life activity, inspirational , unique thoughts. sir showed physics experiments in a very understanding way that helps students. 
